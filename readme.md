@@ -12,7 +12,7 @@ kolko kamenov mnisi prekladaju...
 
 Nas tim tvoria clenovia:
 
-1.
+1. Daniel Grohol
 2.
 3.
 4.
