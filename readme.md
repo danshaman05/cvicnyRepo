@@ -14,6 +14,6 @@ Nas tim tvoria clenovia:
 
 1. Daniel Grohol
 2.
-3.
+3. Michal Kovac
 4.
 
