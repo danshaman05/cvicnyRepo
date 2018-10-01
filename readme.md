@@ -13,7 +13,7 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Daniel Grohol
-2.
+2. Michal Pazmany
 3. Michal Kovac
 4.
 
